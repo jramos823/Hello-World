@@ -1,5 +1,5 @@
 # Hello-World
-Hello all
+Hello World
 
 My name is Joshua Ramos and this is where I will be storing some of my personal projects along with any writeups and solutions🤖 
 
