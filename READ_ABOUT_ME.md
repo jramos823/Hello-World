@@ -15,6 +15,9 @@ Some interst/hobbies outside of my education:
   - I also used to really be into movies but recently have not been able to get into theaters :( 
 
 
-For whatever reason you are here thanks for the read! Hopefully you find something of interest. 
+For whatever reason you are here thanks for the read! Hopefully you find something of interest.
+
+Linkedin: 
+https://www.linkedin.com/in/joshua-ramos-b4538a172/
 
 
