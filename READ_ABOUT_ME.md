@@ -18,6 +18,6 @@ Some interst/hobbies outside of my education:
 For whatever reason you are here thanks for the read! Hopefully you find something of interest.
 
 Linkedin: 
-https://www.linkedin.com/in/joshua-ramos-b4538a172/
+<br>https://www.linkedin.com/in/joshua-ramos-b4538a172/
 
 
