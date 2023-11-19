@@ -13,7 +13,7 @@ Some of my personal interst/hobbies:
   - I like going to the gym
 
 
-If you have any questions feel free to email me at joshua.leigh.ramos@gmail.com
+If you need to reach out to me email me at joshua.leigh.ramos@gmail.com
 
 Linkedin: 
 <br>https://www.linkedin.com/in/joshua-ramos-b4538a172/
